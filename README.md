@@ -1,1 +1,0 @@
-# 6ZLEINSCM-ABC_RojasGonzalesAdalberto
